@@ -4,7 +4,6 @@
 ---
 
 > 🧩 **"If you want to CRACK the system, First UNDERSTAND the system."**  
-> — *Tamilvanan*
 
 ---
 
